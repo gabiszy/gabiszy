@@ -1,6 +1,6 @@
 ### welcome to the mato 🤍
 
-op,sou a gabriela aluna do plinio 📘
+op,sou a gabis aluna do plinio 📘
 
 **algumas coisas sobre min**🤨
 
